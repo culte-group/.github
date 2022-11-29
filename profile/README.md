@@ -1,5 +1,5 @@
 <p align="center">
-  <b>Damn, this code is crazy. Who made? Oh, we did</b>
+  <b>Damn, this code is crazy. Who made? Oh, we did :]</b>
 </p>
 
 <p align="center">
